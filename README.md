@@ -12,3 +12,6 @@
 
 
 3\. Green Target
+
+<img src='http://i.imgur.com/PYuENI8.gif' title='Video Walkthrough' width='' alt='Video Walkthrough' />
+
