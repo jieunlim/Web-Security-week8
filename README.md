@@ -9,3 +9,7 @@
 
 <img src='http://i.imgur.com/PYuENI8.gif' title='Video Walkthrough' width='' alt='Video Walkthrough' />
 
+3\. Red Target
+
+<img src='http://i.imgur.com/FcCdCMM.gif' title='Video Walkthrough' width='' alt='Video Walkthrough' />
+
