@@ -10,6 +10,8 @@
 2\. Green Target
 
 <img src='http://i.imgur.com/PYuENI8.gif' title='Video Walkthrough' width='' alt='Video Walkthrough' />
+<img src='http://i.imgur.com/TwA3i9W.gif' title='Video Walkthrough' width='' alt='Video Walkthrough' />
+
 
 3\. Red Target
 
